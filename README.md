@@ -6,7 +6,7 @@ I also quite enjoy anything relating to numbers and mathematics. I'm an aspiring
 
 <img width="63" height="101" alt="image" src="https://github.com/user-attachments/assets/e25439a9-6fbd-4da1-9041-b7dd4678d651" />
 
-As of now I am making a strawpage; it'll be available here once it gets done.
+https://omicroniscool.straw.page/
 
 MASSIVE fan of any fighting game from Tekken to KOF to even Smash Brothers and Rivals of Aether!
 waiting for the new Professor Layton to release since 2023. oh my god I hate Level 5
